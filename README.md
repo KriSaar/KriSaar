@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KriSaar
-- 👀 I’m interested in IT support or IT marketing tasks.
+- 👀 I’m interested in IT support tasks or IT marketing tasks.
 - 🌱 I’m currently learning ICT opportunities.
 - 💞️ I’m looking to collaborate on IT Company.
 - - 📫 How to reach me ...
